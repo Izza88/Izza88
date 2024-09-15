@@ -1,3 +1,4 @@
+:![LoveNarutoGIF](https://github.com/user-attachments/assets/6aff6679-dee4-49de-8241-aab49cfdd32d)
 
 
 <!--
@@ -14,4 +15,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-https://tenor.com/pt-BR/view/tobi-metadinha-gif-22251673
+
